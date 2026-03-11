@@ -1,6 +1,7 @@
-School Email: CMJ48@humboldt.edu
+School Email: cmj48@humboldt.edu
 
 
 
 
 Vargas Lab link: https://oscarmvargas.com/about
+
